@@ -1,16 +1,42 @@
-## Hi there 👋
+↓↓↓↓↓最新入口↓↓↓↓↓
 
-<!--
-**zjprj/zjprj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
-Here are some ideas to get you started:
+点上方链接进入↑↑↑↑↑
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+“医院里病人那么多，空气里不知道有多少细菌，你们把我的乖宝带来医院，要是感染了什么细菌怎么办？”
+
+慕榆解释是锦晏自己要来，自己要留下的。
+
+她想让清棠偷偷带宝宝和谢镜回家或者去酒店，可清棠只要一动，没走几步，宝宝就会醒来说不要离开医院，要等爸爸醒来。
+
+接连试了几次后，她也没辙了。
+
+第一次车祸宝宝救了阿盛。
+
+第二次宝宝梦到阿盛出了事急着要找爸爸，然后阿盛奇迹般地在那样的事故中活了下来。
+
+似乎宝宝说没事，阿盛就一定会化险为夷。
+
+虽然听起来有些玄幻，可万一宝宝和阿盛之间真的存在某种特殊的羁绊呢？
+
+第468章反派拿了炮灰真少爷剧本（32）
+
+“宿主，大反派已经平安无事了，你可以放心了吧？”
+
+“嗯，检测爸爸的各项指标，我不希望他出现任何问题。”
+
+288看着表面疲惫困乏实际上却遍体鳞伤的锦晏，不禁有些后悔答应锦晏的要求。
+
+大反派死了就死了。
+
+宿主可不能出事。
+
+喻盛出事的时候，锦晏的梦里一片血腥。
+
+她对自己的直觉一向都很有信心。
+
+即便没有刻意通过288探查喻盛的情况，在猜到喻盛可能出事的情况下，她还是第一时间选择了“疼痛共享”。
+
+简而言之，跟另一个人共享疼痛，达到将自己或对方的疼痛减弱的目的
+http://6m3k.top
